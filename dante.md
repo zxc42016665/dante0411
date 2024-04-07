@@ -9,3 +9,5 @@
 ![image](https://github.com/zxc42016665/dante0411/assets/162863424/f59b7d22-6a09-4dd5-bf85-93fb3a8e096e)
 ![image](https://github.com/zxc42016665/dante0411/assets/162863424/acd0cd6a-ae01-45d4-840b-abcf34972a05)
 ![image](https://github.com/zxc42016665/dante0411/assets/162863424/c13a85a7-587b-4ef1-af14-881afcc4a455)
+![image](https://github.com/zxc42016665/dante0411/assets/162863424/d1c45469-0773-4252-b6be-6573c618a01b)
+Uploading Circuit design Frantic Albar-Amberis - Tinkercad - Google Chrome 2024-04-07 13-42-31.mp4…
