@@ -31,3 +31,10 @@ https://github.com/zxc42016665/dante0411/assets/162863424/4c0c6083-e7b7-4e46-b42
 
 https://github.com/zxc42016665/dante0411/assets/162863424/043032e7-a510-449f-9f2d-efb46b34439d
 
+
+3-5
+https://www.tinkercad.com/things/lDm3OmWXU8f-incredible-bigery/editel
+4-1
+https://www.tinkercad.com/things/aMczQmhdil7-cool-blad-albar/editel
+4-2
+https://www.tinkercad.com/things/3z42OffTtBD-copy-of-cool-blad-albar/editel
