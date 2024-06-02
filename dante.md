@@ -40,3 +40,10 @@ https://www.tinkercad.com/things/aMczQmhdil7-cool-blad-albar/editel
 
 4-2
 https://www.tinkercad.com/things/3z42OffTtBD-copy-of-cool-blad-albar/editel
+
+4-3
+https://www.tinkercad.com/things/fKyW6j5fzMw-daring-borwo-curcan
+https://www.tinkercad.com/things/9b85Sgg4pIM-neat-turing
+https://www.tinkercad.com/things/5lgg4nX2pHq-cool-juttuli
+
+4-4
