@@ -46,6 +46,11 @@ https://www.tinkercad.com/things/fKyW6j5fzMw-daring-borwo-curcan
 
 https://www.tinkercad.com/things/9b85Sgg4pIM-neat-turing
 
+5-3
+https://www.tinkercad.com/things/32tMAo7UK3w-exquisite-amur/editel?tenant=circuits
+
+https://www.tinkercad.com/things/lwvXJyavgeZ-epic-jarv-migelo/editel
+
 https://www.tinkercad.com/things/5lgg4nX2pHq-cool-juttuli
 
 4-4
